@@ -1,0 +1,2 @@
+# premium-barrel-age-coop-001-barrel-seasoning-wood-aging
+Every heritage-coopering-techniques professionals needs this — most just don't know it yet.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Barrel Seasoning &amp; Wood Aging Schedule — fully configured and ready to use -
